@@ -4,5 +4,5 @@ Visit my blog on Substack
 
 ## What to make for dinner?
 
-That is the question. Here, from time to time, I provide the answer. 
-Plant-forward. Family-friendly. Fast. 
+That is the question. Here, I provide the answer. 
+Plant-forward. Family-friendly. Fast. Fancy-feel without fancy fuss. 
